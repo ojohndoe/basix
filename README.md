@@ -18,7 +18,7 @@ CCNA v7 Interprise
 Objetivos utopicos:
 Ter uma Lan-House fixa e outra movel
 Contribuir para ter SmartPhones publicos e computadores publicos
-
+https://store.steampowered.com/steamos?l=brazilian
 
 Recursos disponiveis atualmente:
 
